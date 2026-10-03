@@ -60,5 +60,9 @@ AI & Data Science undergraduate who loves turning ideas into practical AI system
 
 
 Feel free to reach out for collaborations, ideas or just a chat about AI.
+
+
 Email:mohammedfarish3010@gmail.com
+
+
 LinkedIn:www.linkedin.com/in/mohammed-farish-d-8b7439349
